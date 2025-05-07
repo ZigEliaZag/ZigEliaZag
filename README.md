@@ -3,6 +3,7 @@
 - 👀 I’m interested in Web Applications 
 - 🌱 I’m currently learning css, already done with Html
 - 📫 How to reach me eliakaliza50@icloud.com
+- fun fact. I have no commitment issue 😄
 
 
 
